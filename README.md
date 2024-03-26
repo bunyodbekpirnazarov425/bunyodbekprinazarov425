@@ -1,1 +1,1 @@
-# bunyodbekprinazarov425
+# bunyodbek_prinazarov
